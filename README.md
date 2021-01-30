@@ -1,1 +1,1 @@
-# hello-Ethiopians just work hard
+# hello-Ethiopians just work hard to get something different 
